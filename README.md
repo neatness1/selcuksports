@@ -12,13 +12,4 @@ SelçukSports'un en son giriş adresi:
 
 SelçukSports, futbol, basketbol, voleybol gibi birçok spor dalında canlı yayınlar sunan bir platformdur. Özellikle Süper Lig, UEFA Şampiyonlar Ligi ve Avrupa Ligi gibi organizasyonları takip edenler için popülerdir.
 
-## Alternatif Yöntemler
-
-- VPN kullanarak engellemeleri aşabilirsiniz.
-- Telegram veya Twitter gibi sosyal medya hesaplarından güncel adresleri öğrenebilirsiniz.
-
-## Uyarı
-
-SelçukSports gibi üçüncü taraf platformları kullanırken dikkatli olun. Güvenilir kaynaklardan giriş yaparak kişisel bilgilerinizin korunmasına özen gösterin.
-
 📢 **Güncellemeler için takipte kalın!**

@@ -1,4 +1,6 @@
 # SelçukSports Güncel Giriş Adresi
+## <a href="https://kaliteiptvtr5.com/" title="beinsports">IPTV SATIN ALMAK İÇİN TIKLA</a>
+## <a href="https://t.me/+WbA8WJyvHWUxNWM1" title="beinsports">TELEGRAM KANALIMIZ</a>
 SelçukSports, Türkiye'de popüler olan canlı maç izleme platformlarından biridir. Ancak, sık sık erişim engellemeleriyle karşı karşıya kalmaktadır. Bu nedenle, güncel giriş adresini takip etmek önemlidir.
 
 ## Güncel Giriş Adresi
